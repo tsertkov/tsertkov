@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Aleks (Al) @tsertkov
-- 👀 I’m interested in live. Past and future
+- 👀 I’m interested in past and future
 - 🌱 I’m always learning and improving
 - 💞️ I’m looking to collaborate on anything
 - 📫 Say hello!
